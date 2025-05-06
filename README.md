@@ -2,9 +2,9 @@
 
 New memecoin based on whales' locks. Thoughtful and transparent tokenomics, progressive and realistic roadmap. Pure smart contract
 
-OFFICIAL TG CHANNEL: t.me/cockpot419inu
+OFFICIAL TG CHANNEL: https://t.me/cockpot419inu
 
-OFFICIAL TG CHAT LINK: http://t.me/safeguard?start=-1002578566944
+OFFICIAL TG CHAT LINK: https://t.me/safeguard?start=-1002578566944
 
 Website: https://cockpot.fun/
 
