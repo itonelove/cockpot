@@ -1,0 +1,2 @@
+# cockpot
+MEMECOIN $419INU
